@@ -10,7 +10,7 @@
 
 <h1>Motorized Curtains in Qatar: A Blend of Luxury and Convenience</h1>
 
-<p>In recent years, home automation has transformed the way we live, offering unparalleled convenience and efficiency. One of the standout innovations in this space is<Storng> <a href="https://curtainsandblinds.qa/motorized-curtains/">Motorized Curtains</a></Storng>Storng>. As homes in Qatar become increasingly sophisticated, motorized curtains are emerging as a must-have feature that combines luxury, convenience, and practicality. This article explores the benefits, functionality, and reasons why motorized curtains are becoming popular in Qatar.</p>
+<p>In recent years, home automation has transformed the way we live, offering unparalleled convenience and efficiency. One of the standout innovations in this space is <Storng> <a href="https://curtainsandblinds.qa/motorized-curtains/">Motorized Curtains</a></Storng>. As homes in Qatar become increasingly sophisticated, motorized curtains are emerging as a must-have feature that combines luxury, convenience, and practicality. This article explores the benefits, functionality, and reasons why motorized curtains are becoming popular in Qatar.</p>
 
 <h2>Understanding Motorized Curtains</h2>
 
